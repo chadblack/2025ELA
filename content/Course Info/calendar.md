@@ -89,59 +89,134 @@ title: 3. Calendar
 
 ## Week 6 (On the Mainland)
 
-**Tuesday, September 23, 2025**  
-**Thursday, September 25, 2025**  
+> [!info] Week six focus.  
+> In the 1520s and 1530s, the Spanish Empire expanded to cover much of Central and South America. At the time, Spaniards and their native allies both imagined themselves as conquering the controlling empires of Mesoamerica and the Andes. Who, then, conquered whom? In the early 16th century, did native allies with the Spanish imagine themselves as collaborators in European domination? If not, what did they imagine they were doing?
+
+**Tuesday, September 23, 2025: Conquest Myths and Realities**   
+
+* Townsend, Camila. (2021). *Fifth Sun*. Oxford University Press. Pp 85-106.
+* "The Spaniards' Entry into Tenochtitlan," *The Mexico Reader*. Pp. 97-104.
+
+**Thursday, September 25, 2025: From the Planes of Cajamarca**  
+
+* Seed, Patricia. (1991). "Failing to Marvel: Atahualpa's Encounter with the Word." *Latin American Research Review* (26.1): 7-32. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_miscellaneous_839236531)
 
 ## Week 7 (The Order of Things)
 
-**Tuesday, September 30, 2025**  
-**Thursday, October 2, 2025**  
+> [!info] Week seven focus.
+> How do you build an empire in the midst of demographic collapse? How do you survive the imposition of a new symbolic order? How did the institutional framework of empire work to create a new culture/society that subsumed its constituent parts (and what does that sentence mean?)? How did early modern imperialists confront the technical and practical challenges of ruling the span of the globe?
+
+**Tuesday, September 30, 2025: Building on Collapsing Ground**  
+
+* Phelan, John Leddy. (June 1960). “Authority and Flexibility in the Spanish Imperial Bureaucracy” *Administrative Science Quarterly*, Vol. 5, No. 1, Special Issue on Comparative Public Administration. Pp. 47-65. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_econis_primary_482179511)
+
+**Thursday, October 2, 2025: Church in State**  
+
+* Nesvig, Martin. (2021) *Promiscuous Power*, “Burning Down the House, in Which the spiritual Conquistadors Go to War with Each Other.” University of Texas Press.
 
 ## Week 8 (Fall Break and Midterm Exam)
 
-**Tuesday, October 7, 2025**  
-**Thursday, October 9, 2025**  
+**Tuesday, October 7, 2025: Fall Break**  
+You know what to do.
+
+**Thursday, October 9, 2025: In-Class**  
+Be sure to bring a blue or green exam booklet with you for the exam. You can buy one at any of the Pods. They are very, very cheap.
+
 
 ## Week 9 (Captivity and Enslavements)
 
-**Tuesday, October 14, 2025**  
-**Thursday, October 16, 2025**  
+> [!info] Week nine focus.
+> From its inception, the Spanish and Portuguese colonial projects depended on the labor of enslaved Africans and Indigenous people. Formally, Indigenous slavery was abolished early by the crown. But African captivity was a mainstay of the Spanish and Portuguese imperial projects. As Kris Lane argues, slave owners even pinned their hopes for the afterlife on enslaved labor carried out in their name after death. Pay close attention this week to strategies that enslaved and free blacks pursued in colonial Latin America.
+
+**Tuesday, October 14, 2025: A Society Built on Enslavement**  
+
+* Lane, Kris. (2000) “Captivity and Redemption: Aspects of Slave Life in early Colonial Quito and Popoyan.” *The Americas* 57.2. Pp 225-246. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_journals_1518334548)
+
+**Thursday, October 16, 2025: Brazilian Trajectories**  
+
+* Jane Landers, “Felipe Edimboro Sues for Manumission, Don Francisco Xavier Sánchez contests (Florida, 1794),” in Colonial Lives, pp. 249-268.
 
 ## Week 10 (Native Labor and Accumulation)
 
-**Tuesday, October 21, 2025**  
-**Thursday, October 23, 2025**  
+> [!info] Week 10 focus.
+> Enslavement was not the only form of coerced labor exploited by Iberian empires. This week we consider the effects of encomienda and tribute on the integrity of native communities under Iberian rule. What significance is there in native communities pursuing their own legal strategies before the crown? How did tribute taxation and labor function? Were the New Laws successful?
+
+**Tuesday, October 21, 2025: The Many Kinds of Economic Coercion**  
+
+* Barragán, Rossana. (2017). "Working Silver for the World: Mining Labor and Popular Economy in Colonial Potosí." *Hispanic American Historical Review* (97.2): 193-222. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_journals_1950068658)
+
+**Thursday, October 23, 2025: Wither the Two Republics?**  
+
+* Yannakakis, Yanna. "Taking the Courts to the Fields: Law, Violence, and Agrarian Custom in Colonial Oaxaca, Mexico." *Law and history review*. (20.3): 513-532. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_journals_2726339060)
 
 ## Week 11 (Love, Hate, and Social Reproduction)
 
-**Tuesday, October 28, 2025**  
-**Thursday, October 30, 2025**  
+> [!info] Week 11 focus.
+> This week, we are focusing on family, sexuality, and social order. The customs and laws of Iberia and the Indies were deeply influential in the ordering (and disordering) of colonial society. The Conquest, and its aftermath, included exploitative and coercive relationships, and even regular marriages had their fair share of conflict between spouses. This week, we consider these things by looking at unnatural sexuality and witchcraft, as a way of also understanding what colonial society understood to be natural.
 
+**Tuesday, October 28, 2025: Is It Love or Is It Magic?
+
+* Ruth Behar, “Sexual Witchcraft, Colonialism, and Women’s Powers,” in Sexuality and Marriage in Colonial Latin America. Lavrin, ed. Lincoln: Univ. of Nebraska Press, 1992.
+
+**Thursday, October 30, 2025: Sex in the Archive**  
+ 
+ * Black, Chad. "Negotiating Adultery in Colonial Quito," Pp 171-179 in *The Routledge Companion to Sexuality and Colonialism*
 ## Week 12 (Film Review)
 
 **Tuesday, November 4, 2025: Election Day, No Class**
 
 **Thursday, November 6, 2025: No Class**
 
-Finish your film review, which must be smart, clever, and plugged into this semester's themes rather than AI slop. 
+Finish your film review, which must be smart, clever, and plugged into this semester's themes rather than AI slop.
 
 ## Week 13 (Rebellion and Reaction)
 
-**Tuesday, November 11, 2025**  
-**Thursday, November 13, 2025**  
+> [!info] Week 13 focus.
+> By the 1780s, part of the Spanish Empire erupted into open rebellion against the economic reforms pushed afer the Seven Years War. Why did these rebellions not lead to Independence? What explains the complicated political identities articulated by their protagonists? What constituted legitimate authority by century’s end?
+
+
+**Tuesday, November 11, 2025: Reform Reactions**  
+
+* Pamela Voekel, “Peeing on the Palace: Bodily Resistance to Bourbon Reforms in Mexico City,” Journal of Historical Sociology, Vol. 5 No. 2 (June 1992): 183-208.
+
+**Thursday, November 13, 2025: Insurrections down South**
+
+* David T. Garrett, “His Majesty’s Most Loyal Vassals”: The Indian Nobility and Túpac Amaru,” Hispanic American Historical Review, 84:4 (2004): 575-617.
 
 ## Week 14 (Independence)
 
-**Tuesday, November 18, 2025**  
-**Thursday, November 20, 2025**  
+> [!info] Week 14 focus.
+> The crises of the Bourbon reforms never produced independence movements. That would take Napoleon invading Spain. We consider this week the crisis of 1808 caused by Napoleon, and how that set up the process of independence, which wouldn’t culminate for more than a decade!
+
+
+**Tuesday, November 18, 2025: The Horror of Politics**  
+
+*  Chad Thomas Black (2025) On private and public violence: Joseph García de León y Pizarro’s ideology of rule (1780), *Colonial Latin American Review*, 34:2, 235-257.
+
+**Thursday, November 20, 2025: Did You See it Coming?**
+
+* Jaime E. Rodríguez O., “New Spain and the 1808 Crisis of Spanish Monarchy,” Mexican Studies/Estudios Mexicanos, 24.2 (Summer 2008): 245-287.
 
 ## Week 15 (Thanksgiving)
 
+> [!tip] No class this week!
+
 **Tuesday, November 25, 2025**  
+
+* Travel safely.
+
 **Thursday, November 27, 2025**  
+
+* Eat food and manage family.
 
 ## Week 16 (WRAP IT UP!)
 
+> [!danger] WRAP. It. Up.
+> The new republics will be free of Iberian rule, and you’re about to be free of this semester….
+
 **Tuesday, December 2, 2025**
 
-## Final Exam 
+* No reading for our final meeting.
+
+
+## Final Exam: Tuesday December 9 at 3:30pm.
