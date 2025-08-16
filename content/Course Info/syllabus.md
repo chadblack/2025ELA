@@ -5,7 +5,7 @@ title: 1. Syllabus
 HILA 255/LAC 251   
 TR 11:20-12:35   
 HSS 123   
-FALL 2024 
+FALL 2025 
 
 **Prof. Chad Black**  
 **Email:** cblack6@utk.edu  
@@ -20,7 +20,7 @@ FALL 2024
 **Drop-In Hours:**  
 
 **Mr. Derek Griffin**  
-**Email:**  
+**Email:**  dgriff13@vols.utk.edu
 **Office:**  SMC 602  
 **Drop-In Hours:**  Tuesday/Thursday 9:00-10:00, or by appointment
 
