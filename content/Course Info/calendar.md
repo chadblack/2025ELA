@@ -94,7 +94,7 @@ title: 3. Calendar
 
 **Tuesday, September 23, 2025: Conquest Myths and Realities**   
 
-* Townsend, Camila. (2021). *Fifth Sun*. Oxford University Press. Pp 85-106.
+* Townsend, Camila. (2021). *Fifth Sun*. Oxford University Press. Pp 107-128.
 * "The Spaniards' Entry into Tenochtitlan," *The Mexico Reader*. Pp. 97-104.
 
 **Thursday, September 25, 2025: From the Planes of Cajamarca**  
@@ -177,11 +177,11 @@ Finish your film review, which must be smart, clever, and plugged into this seme
 
 **Tuesday, November 11, 2025: Reform Reactions**  
 
-* Pamela Voekel, “Peeing on the Palace: Bodily Resistance to Bourbon Reforms in Mexico City,” Journal of Historical Sociology, Vol. 5 No. 2 (June 1992): 183-208.
+* Pamela Voekel, “Peeing on the Palace: Bodily Resistance to Bourbon Reforms in Mexico City,” Journal of Historical Sociology, Vol. 5 No. 2 (June 1992): 183-208. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_miscellaneous_61328285)
 
 **Thursday, November 13, 2025: Insurrections down South**
 
-* David T. Garrett, “His Majesty’s Most Loyal Vassals”: The Indian Nobility and Túpac Amaru,” Hispanic American Historical Review, 84:4 (2004): 575-617.
+* David T. Garrett, “His Majesty’s Most Loyal Vassals”: The Indian Nobility and Túpac Amaru,” Hispanic American Historical Review, 84:4 (2004): 575-617.  [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_miscellaneous_38007709)
 
 ## Week 14 (Independence)
 
@@ -191,11 +191,11 @@ Finish your film review, which must be smart, clever, and plugged into this seme
 
 **Tuesday, November 18, 2025: The Horror of Politics**  
 
-*  Chad Thomas Black (2025) On private and public violence: Joseph García de León y Pizarro’s ideology of rule (1780), *Colonial Latin American Review*, 34:2, 235-257.
+*  Chad Thomas Black (2025) On private and public violence: Joseph García de León y Pizarro’s ideology of rule (1780), *Colonial Latin American Review*, 34:2, 235-257. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_informaworld_taylorfrancis_310_1080_10609164_2025_2504300)
 
 **Thursday, November 20, 2025: Did You See it Coming?**
 
-* Jaime E. Rodríguez O., “New Spain and the 1808 Crisis of Spanish Monarchy,” Mexican Studies/Estudios Mexicanos, 24.2 (Summer 2008): 245-287.
+* Jaime E. Rodríguez O., “New Spain and the 1808 Crisis of Spanish Monarchy,” *Mexican Studies/Estudios Mexicanos*, 24.2 (Summer 2008): 245-287. [UTK Library](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/9go8o8/cdi_proquest_miscellaneous_61771764)
 
 ## Week 15 (Thanksgiving)
 
