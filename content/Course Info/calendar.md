@@ -25,7 +25,7 @@ title: 3. Calendar
 > [!question] Reading question
 > How does the organization of exchange effect or reflect other aspects of a given society? What does Karatani mean by 'mode of exchange'? What are the basic modes of exchange that he identifies? What values do they represent? Can you imagine current examples of those modes at work?
 
-* Karatani, Kojin. *The Structure of World History*. Duke University Press. Pp. 5-10, 35-49. [Library copy](https://ebookcentral.proquest.com/lib/utk/reader.action?docID=1647715&ppg=1&c=UERG)
+* Karatani, Kojin. *The Structure of World History*. Duke University Press. Pp. 5-10, 35-49. [Library copy](https://ebookcentral.proquest.com/lib/utk/reader.action?docID=1647715&ppg=1&c=UERG). If that link doesn't work, try [this one](https://utk.primo.exlibrisgroup.com/permalink/01UTN_KNOXVILLE/bcmt7h/alma9924986230102311)
 
 ## Week 2 (Premodern Societies)
 
