@@ -17,7 +17,7 @@ FALL 2025
 **Ms. Camren Murray**  
 **Email:** cmurra24@vols.utk.edu  
 **Office:** SMC 602   
-**Drop-In Hours:**  
+**Drop-In Hours:**  Tuesday 9:00-11:00, or by appointment
 
 **Mr. Derek Griffin**  
 **Email:**  dgriff13@vols.utk.edu
