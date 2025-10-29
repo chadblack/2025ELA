@@ -19,5 +19,5 @@ There will be two exams-- a midterm and a final.
 
 # film reaction (20%) 
 
-We have three feature-length film options this semester-- **La otra conquista**, **Zama**, and **The Mission**. Students must write a 3-5 page analysis of one of these films. The analysis must compare the film to an assigned reading from this semester. There are specific instructions for each film to help you under [[Course Resources]].
+We have three feature-length film options this semester-- **La otra conquista**, **Zama**, and **The Mission**. Students must write a 3-5 page analysis of one of these films. The analysis must compare the film to an assigned reading from this semester. There are specific instructions for each film to help you under the Course Resources tab of the website, or directly to the individual films at [La otra conquista](https://chadblack.net/2025ELA/Resources/La-otra-conquista), [Zama](https://chadblack.net/2025ELA/Resources/Zama), and [The Mission](https://chadblack.net/2025ELA/Resources/The-Mission). 
 
